@@ -1,4 +1,4 @@
-My name is Suhana B U
+My name is Suhana B U.
 My Skill Sets are - 
   1. Willingness to learn and grasp new concepts
   2. Good Presentation and Communication Skill
